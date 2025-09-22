@@ -1,1 +1,2 @@
-# Lab-1---Ashesi-Premier-League--10362028-
+# Name: Monica Yar Malual Ajhok
+# ID: 10362028-
